@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @COCOSZN
-- 👀 I’m TECH ENTHUSIASTS 
+- 👀 I’m a TECH ENTHUSIASTS 
 - 🌱 I’m currently learning CYBERSECURITY 
 - 💞️ I’m looking to collaborate on PROJECTS 
 - 📫 How to reach me MRPRINCEWILLETIMUKPONG@GMAIL.COM
